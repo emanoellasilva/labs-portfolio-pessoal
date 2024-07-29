@@ -13,6 +13,8 @@ Animações e efeitos de transição suave.
 
 ![image](https://github.com/user-attachments/assets/e3865a67-bda9-4523-a652-dbad3370400f)
 
+![image](https://github.com/user-attachments/assets/18b59065-7fc0-4680-919a-fb2f3f006f66)
+
 
 
 
